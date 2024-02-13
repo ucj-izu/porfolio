@@ -1,6 +1,10 @@
-# Mechanical Engineering
+# Mechanical Engineer
 
 ### Education
-Mechanical Engineer
+B.S. Mechanical Engineering
 
 ### Work Experience
+Warehouse Worker
+Store Associate
+
+### Projects
