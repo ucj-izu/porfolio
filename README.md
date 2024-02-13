@@ -4,7 +4,7 @@
 B.S. Mechanical Engineering
 
 ### Work Experience
-Warehouse Worker
-Store Associate
+- Warehouse Worker
+- Store Associate
 
 ### Projects
