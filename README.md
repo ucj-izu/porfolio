@@ -1,1 +1,6 @@
-# porfolio created from herScript GBM
+# Mechanical Engineering
+
+### Education
+Mechanical Engineer
+
+### Work Experience
